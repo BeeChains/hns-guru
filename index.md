@@ -8,4 +8,4 @@ Of the Creator...
 - [OWN The Inner I](http://youareguru.owntheinneri/)
 - [OWN The Inner I Net](http://youareguru.owntheinnerinet/)
 - [OWN The WEB 3/](http://official.owntheweb3/)
-- [WEB Security SpeCIAlist/](http://admin.websecurityspecialist/)
+- [WEB Security Specialist/](http://admin.websecurityspecialist/)
