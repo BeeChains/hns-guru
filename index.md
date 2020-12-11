@@ -1,6 +1,8 @@
 ## HNS-GURU says ALL IS...
 
-Of the Creator.
+Of the Creator...
+
+- [Agni Yogi/](http://agniyoga.org/ay_en/Aum.php/)
 - [Master Thyself](http://innerinetcompany.masterthyself/) 
 - [Inner I Net Company/](http://innerinetcompany.carrd.co/)
 - [OWN The Inner I](http://youareguru.owntheinneri/)
