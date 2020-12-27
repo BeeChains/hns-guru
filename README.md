@@ -1,2 +1,2 @@
-# hns-guru
-HNS-GURU top level domain
+# hns-guru | a Handshake TLD
+HNS-GURU, a Handshake top level domain
